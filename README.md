@@ -1,0 +1,1 @@
+# complaints.center.sctsu.sk
